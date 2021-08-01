@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ceat-ceat
-- 👀 I’m interested in ... fumo fumo fumo fumo fumo fumo fumo fumo  ~~roblox, osu, tf2, and fumos!!!!!!!!!!!!! (oh yeah programming too but im not thes best lol)~~
+- 👀 I’m interested in ... fumo fumo fumo fumo fumo fumo fumo fumo  ~~roblox, osu, tf2, and~~ fumos!!!!!!!!!!!!! ~~(oh yeah programming too but im not thes best lol)~~
 - 🌱 I’m currently learning ... not much right now
 - 💞️ I’m looking to collaborate on ... well uhh
 - 📫 How to reach me ... dm me on discord (ceat(mega stupid)jjjjjjjjj#6144) im basically always online as long as i dont have anything else to do
