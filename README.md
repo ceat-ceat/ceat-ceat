@@ -16,7 +16,7 @@
   <br/>
   <b>what: </b><code>ceat#6144</code> <- was my discord
   <br/>
-  <b>ok: </b><code>ceat#6144</icode <- probably my discord
+  <b>ok: </b><code>ceat#6144</code> <- probably my discord
   <br/>
   <code><code><code>wtf you can do this</code></code>wtf</code>
 </div>
